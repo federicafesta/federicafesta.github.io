@@ -1,5 +1,5 @@
 Siete appena tornati al lavoro e sentite già che stanchezza e stress stanno per avere la meglio?
-Come ogni autunno, stanno per ripartire i miei **corsi di gruppo di Training Autogeno**!
+Come ogni autunno, stanno per ripartire i corsi di gruppo di **Training Autogeno** presso lo Studio Festa, via Filadelfia 117, Torino
 
 Il prossimo corso si terrà per 3 sabati consecutivi - **10 - 17 - 24 novembre** - **dalle 10.00 alle 13.00**.
 
