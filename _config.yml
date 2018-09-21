@@ -1,3 +1,4 @@
 theme: jekyll-theme-cayman
 gem "github-pages", group: :jekyll_plugins
 header_img: "/resources/ta_nov2018.png"
+title: "Training Autogeno @ Studio Festa Torino"
